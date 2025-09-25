@@ -8,4 +8,4 @@ My professional profile is here [Aung's LinkedIn Profile](https://www.linkedin.c
 
 - ⚡ Fun fact: ...
 
---> I make watches and sell for raising funds for my old country.
+--> I am an Australian citizen but I have designed, made watches and sold them for raising funds for my old country, Burma.
